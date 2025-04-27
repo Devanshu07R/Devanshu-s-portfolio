@@ -1,3 +1,3 @@
 # Devanshu-s-portfolio
 my portfolio........
-welcome to my portfolio website here is my whole historyb
+welcome to my portfolio website here is my whole history
